@@ -21,6 +21,7 @@ Alternatively, feel free to write me on one of the social platforms I am a part 
 - [Snapchat](https://snapchat.com/add/catlinman)
 - [Steam](https://steamcommunity.com/id/catlinman)
 - [Twitch](https://twitch.tv/catlinman)
+- [Flickr](https://www.instagram.com/catlinman/)
 - [Last.fm](https://last.fm/user/catlinman)
 - [Ask.fm](https://ask.fm/catlinman)
 
