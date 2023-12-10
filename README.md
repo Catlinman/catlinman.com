@@ -6,12 +6,12 @@ _As of 2020 this handle has been retired. This page serves as a showcase of the 
 
 ## Links ##
 
-[YouTube](https://youtube.com/catlinman)
-[Twitter](https://twitter.com/catllnman)
-[DeviantArt](https://catlinman.deviantart.com/)
-[GitHub](https://github.com/catlinman)
-[Snapchat](https://snapchat.com/add/catlinman)
-[Steam](https://steamcommunity.com/id/catlinman)
-[Twitch](https://twitch.tv/catlinman)
-[Last.fm](https://last.fm/user/catlinman)
-[Ask.fm](https://ask.fm/catlinman)
+- [YouTube](https://youtube.com/catlinman)
+- [Twitter](https://twitter.com/catllnman)
+- [DeviantArt](https://catlinman.deviantart.com/)
+- [GitHub](https://github.com/catlinman)
+- [Snapchat](https://snapchat.com/add/catlinman)
+- [Steam](https://steamcommunity.com/id/catlinman)
+- [Twitch](https://twitch.tv/catlinman)
+- [Last.fm](https://last.fm/user/catlinman)
+- [Ask.fm](https://ask.fm/catlinman)
